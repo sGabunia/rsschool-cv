@@ -1,1 +1,1 @@
-# rsschool-cv
+https://sgabunia.github.io/rsschool-cv/cv
