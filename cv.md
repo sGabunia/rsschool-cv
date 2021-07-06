@@ -5,4 +5,4 @@
 5. https://github.com/sGabunia
 6. My projects: https://github.com/sGabunia?tab=repositories
 7. Freecodecamp, Fullstackopen course, coding challenges on edabit.com
-8. B2. Good listening and writing skills. Studying English from childhood
+8. B2. Studying English from childhood. Good reading and listening skills
